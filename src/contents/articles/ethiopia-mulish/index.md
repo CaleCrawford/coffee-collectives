@@ -15,14 +15,14 @@ An unfortunately underwhelming Ethiopian coffee, the Mulish allows its less desi
 **Region:** Sidama, Guji Zone   
 **Varietal:** Ethiopian heirloom   
 **Elevation:** 2,000m  
-**Process:** Fully washed 
+**Process:** Fully washed  
 **Suggested Notes:** Mandarin orange, blackberry, with a jasmine floral finish     
 **Date Roasted:**   
 **Date Brewed:** July 6th, 2016   
-**Brew Method:** v60 
+**Brew Method:** v60   
 **Price:** $15.95  
 ### Brewing
-**Aroma:** Lime, cherry 
+**Aroma:** Lime, cherry   
 **Thoughts:** Starts off with a very quick bloom. After some trial and error I found that this coffee does better with a courser grind and will over expose very quickly.   
 ### Tasting
 **Aroma:** Lime, jasmine honeysuckle, maple syrup,      
